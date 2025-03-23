@@ -1,1 +1,1 @@
-### Take a look at my personal projects :)
+Personal site :)
